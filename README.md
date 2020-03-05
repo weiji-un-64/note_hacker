@@ -8,4 +8,6 @@
 
 20200114，《Mechanic》GP上传。
 
-《迷路》- 珍妮乐队解构中，敬请期待！
+20200221，《迷路》GP上传。
+
+《Omnissiah》&《Illusion & Real Difference》- Horror of Pestilence 解构中，敬请期待！
