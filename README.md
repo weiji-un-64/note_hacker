@@ -12,4 +12,6 @@
 
 20200313，《Omnissiah (ft. Michael Keene of The Faceless)》 & 《Illusion and Real Difference (ft. Flin/伍凌枫 of Von Citizen/Project Ace)》—— Horror of Pestilence，GP上传。
 
-《烦恼丝》—— 奇妙智商，解构中，敬请期待。
+20200819，形而上乐EP.02
+
+《Lucky Lucky Honey》GP择日公布
