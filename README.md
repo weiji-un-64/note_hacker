@@ -14,4 +14,4 @@
 
 20200819，形而上乐EP.02
 
-《Lucky Lucky Honey》GP择日公布
+20201120，《Lucky Lucky Honey》，GP上传
